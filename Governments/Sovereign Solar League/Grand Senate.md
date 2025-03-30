@@ -1,0 +1,1 @@
+The Grand Senate is an elected body of viceroys and representatives within the Sovereign Star League. Its primary purpose is to debate and pass laws to enrich the League's domain. 
