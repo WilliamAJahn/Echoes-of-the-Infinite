@@ -1,1 +1,0 @@
-Morning Star Excavation Corp (MSEC) is a Venus-based 
