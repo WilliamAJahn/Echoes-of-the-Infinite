@@ -1,0 +1,1 @@
+Mercury Excavation Vehicle 2-A is a mining vehicle set to circumnavigate the equator of the planet Mercury.
