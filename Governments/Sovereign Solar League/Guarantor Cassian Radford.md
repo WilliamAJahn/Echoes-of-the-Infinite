@@ -1,1 +1,0 @@
-Guarantor Cassian Radford was the ruler of the Sovereign Solar League. Cassian rose to power after his father, Horatio Radford, passed away in 2235.
